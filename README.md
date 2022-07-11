@@ -13,7 +13,7 @@
 - looking to collaborate on cool projects in the not too didstant future
 - working on simple React projects
 - learning Swift
-- rebuilding my portfolio 
+- rebuilding [my portfolio](https://fredo.design/)
 ## 📫 Reach me
 - Instagram: @fredodotdesign
 
