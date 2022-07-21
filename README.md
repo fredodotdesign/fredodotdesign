@@ -21,4 +21,4 @@
 fredodotdesign/fredodotdesign is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-let's get in formation ladies!
+if you can't love yourself, how in the hell you gonna love somebody else? can i get an amen up in here?
