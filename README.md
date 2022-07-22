@@ -15,7 +15,7 @@
 - learning Swift
 - rebuilding [my portfolio](https://fredo.design/)
 ## 📫 Reach me
-- Instagram: @fredodotdesign
+- Instagram: [@fredodotdesign](https://instagram.com/fredodotdesign/)
 
 <!---
 fredodotdesign/fredodotdesign is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
