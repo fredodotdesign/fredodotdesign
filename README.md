@@ -22,5 +22,5 @@ fredodotdesign/fredodotdesign is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 ## 🌟 All Stars 7
-Queen of She Done Already Done Had Herses: #TeamViv
-Queen of All Queens: #TeamJinkx
+- Queen of She Done Already Done Had Herses: #TeamViv
+- Queen of All Queens: #TeamJinkx
