@@ -25,4 +25,4 @@ You can click the Preview link to take a look at your changes.
 - Queen of She Done Already Done Had Herses: #TeamViv
 - Queen of All Queens: #TeamJinkx
 ## 👅
-- he's 90, you're 80. sparks are dangerous.
+- creamed what was left on his pants?!
